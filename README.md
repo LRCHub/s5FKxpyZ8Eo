@@ -1,0 +1,81 @@
+# [Alexandros] – あまりにも素敵な夜だから
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:18.14] Wake up
+[00:20.22] Saturday in a park
+[00:22.11] 踊り明かした last night
+[00:25.86] どうして こんな所で
+[00:29.86] 眠り落ちていたみたい
+[00:34.86] 
+[00:34.25] Shakedown 1994
+[00:38.11] お道化疲れて had a fight
+[00:42.37] どうして? 私はただ
+[00:46.32] 笑っていたいだけなのに
+[00:51.82] 
+[00:50.19] 間違って 間違って
+[00:51.93] 間違って重ねた
+[00:54.02] あたり散らした傷を
+[00:57.87] 間違って 間違って
+[01:00.19] 間違って束ねて
+[01:02.50] 解けなくて かき乱した
+[01:08.00] 
+[01:06.71] あまりにも素敵な夜だから
+[01:10.82] 他に何もいらなくなって
+[01:14.82] あたりまえじゃない「今」だけは
+[01:19.00] No no no don't need to go back
+[01:21.59] このまま 踊り果てるよ
+[01:27.09] 
+[01:29.26] You got my heart with your rejection, no no no no
+[01:53.76] 
+[01:39.56] "Time's up" 9 to 5 p.m.
+[01:43.64] ぬるま湯みたいな high five
+[01:47.41] どうした? 私はまだ
+[01:51.67] こんなとこで終われない
+[01:57.17] 
+[01:55.31] 間違って 間違って
+[01:57.02] 間違って重ねた
+[01:59.14] あきれるぐらいの "Miss"も
+[02:03.14] 間違った 間違った
+[02:05.21] 間違った見方で
+[02:08.05] いつのまにか"様"になって
+[02:14.55] 
+[02:11.88] 瞬きほどの命だから
+[02:15.73] 怯えてるのつまんなくなって
+[02:19.77] 過ち恥じる暇あるなら
+[02:23.95] No no no don't waste your time
+[02:26.20] ありのままで足掻いて
+[02:31.20] 
+[02:29.02] We all make mistakes
+[02:30.66] Just gotta admit that it aches
+[02:32.67] 揚げ足取るやつ
+[02:35.85] And it makes me sick
+[02:37.26] I'll buy you a cup of coffee
+[02:38.60] And by the end of the day you'll see
+[02:40.67] It's going, bye bye
+[02:50.17] 
+[02:45.83] 間違って 間違って
+[02:47.90] 間違って重ねた
+[02:49.87] あたり散らした傷は
+[02:53.85] 間違った 間違った
+[02:56.12] 間違ったところで
+[02:58.10] 傷のまま変わらないけど
+[03:03.60] 
+[03:04.25] あまりにも素敵な夜だから
+[03:08.41] 怯えてるのつまんなくなって
+[03:12.67] あたりまえじゃない今だけは
+[03:16.51] No no no don't need to go back
+[03:19.76] このまま 踊り果てるよ
+[03:25.26] 
+[03:27.48] You got my heart with your rejection, no no no no
+[03:36.89] You gotta get yourself up in the morning
+[03:39.67] You gotta get yourself up in the morning
+[03:41.70] You gotta get yourself up in the morning
+[03:43.53] 'Cause it's alright
+[03:53.03] 
+[03:46.31] You gotta get yourself up in the morning
+[03:47.91] You gotta get yourself up in the morning
+[03:50.08] You gotta get yourself up in the morning
+[03:51.70] 'Cause it's alright
+```
